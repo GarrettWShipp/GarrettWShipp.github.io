@@ -1,1 +1,0 @@
-# GarrettWShipp.github.io
